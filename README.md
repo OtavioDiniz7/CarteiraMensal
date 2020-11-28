@@ -1,2 +1,0 @@
-# CarteiraMensalC
- Luciana e Otavio
